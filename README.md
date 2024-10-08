@@ -48,6 +48,7 @@ Telefon: [+4072 4017 272](tel:+40724017272)
 - [TED](https://www.ted.com/profiles/47942587)
 - [Vimeo](https://vimeo.com/esteticatimisoara)
 - [Twitch](https://www.twitch.tv/esteticatimisoara/about)
+- [Tumblr](https://www.tumblr.com/esteticatimisoara)
   
 ---
 
