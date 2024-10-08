@@ -23,7 +23,7 @@ Suntem specializați într-o varietate de tratamente de înfrumusețare, potrivi
 ## 📍 Unde ne găsești
 
 📍 **Adresa**:  
-Str. Crișan 56, Timișoara
+Strada Crișan 56, Timișoara 300368
 
 📞 **Contact**:  
 Email: [contact@estetica-timisoara.ro](mailto:contact@estetica-timisoara.ro)  
