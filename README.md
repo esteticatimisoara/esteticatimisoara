@@ -7,7 +7,7 @@
 Suntem specializați într-o varietate de tratamente de înfrumusețare, potrivite pentru fiecare nevoie:
 
 - **[Tratamente Femei](https://estetica-timisoara.ro/tratamente-femei/)** - Tratamente personalizate pentru a pune în valoare frumusețea naturală a femeilor.
-- **[Epilare Definitivă](https://estetica-timisoara.ro/epilare-definitiva-timisoara/)** - Soluții de epilare definitivă pentru o piele fină.
+- **[Epilare Definitiva](https://estetica-timisoara.ro/epilare-definitiva-timisoara/)** - Soluții de epilare definitivă pentru o piele fină.
 - **[Drenaj Limfatic](https://estetica-timisoara.ro/drenaj-limfatic-btl-lyphastim/)** - Tratamente de drenaj limfatic pentru îmbunătățirea circulației și starea generală de bine.
 - **[Tratamente Corporale](https://estetica-timisoara.ro/tratamente-corporale-femei/)** - Tratamente corporale menite să tonifice, să contureze și să reîntinerească.
 - **[Tratamente Faciale](https://estetica-timisoara.ro/tratamente-faciale-femei/)** - Tratamente faciale pentru luminozitate, hidratare și revitalizarea pielii.
@@ -36,6 +36,17 @@ Telefon: [+4072 4017 272](tel:+40724017272)
 - [Twitter](https://x.com/EsteticaTi57715)
 - [Pinterest](https://ro.pinterest.com/esteticatimisoara/)
 
+## 💻 Ne poți găsi și pe următoarele platforme:
+
+- [GitHub](https://github.com/esteticatimisoara)
+- [Disqus](https://disqus.com/by/esteticatimisoara/about/)
+- [Linktree](https://linktr.ee/esteticatimisoara)
+- [Mixcloud](https://www.mixcloud.com/esteticatimisoara/)
+- [Quora](https://www.quora.com/profile/Estetica-Timisoara)
+- [DeviantArt](https://www.deviantart.com/esteticatimisoara)
+- [Issuu](https://issuu.com/esteticatimisoara)
+- [TED](https://www.ted.com/profiles/47942587)
+  
 ---
 
 ⚡ **Știați că?**: La Estetica Timișoara, fiecare tratament este conceput pentru bunăstarea ta — pentru că adevărata frumusețe începe cu o stare de bine!
